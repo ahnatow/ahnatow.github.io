@@ -1,6 +1,8 @@
 # ahnatow.github.io
 github page
+
 On the terrors of death
+
 Keep on as you have begun, and make all possible haste, so that you may have longer enjoyment of an improved mind, 
 one that is at peace with itself.  Doubtless you will derive enjoyment during the time when you are improving your 
 mind and setting it at peace with itself; but quite different is the pleasure which comes from contemplation when 
@@ -12,16 +14,16 @@ serious because we possess the authority of old age, together with the follies o
 infancy.  Boys fear trifles, children fear shadows, we fear both. 
 
 All you need to do is to advance; you will thus understand that some things are less to be dreaded, precisely because 
-they inspire us with great fear.  No evil is great which is the last evil of all.  Death arrives; it would be a thing to 
-dread, if it could remain with you.  But death must either not come at all, or else must come and pass away.
+they inspire us with great fear.  No evil is great which is the last evil of all.  Death arrives; it would be a thing 
+to dread, if it could remain with you.  But death must either not come at all, or else must come and pass away.
 
 "It is difficult, however," you say, "to bring the mind to a point where it can scorn life." But do you not see what 
-trifling reasons impel men to scorn life?  One hangs himself before the door of his mistress; another hurls himself from 
-the house-top that he may no longer be compelled to bear the taunts of a bad- tempered master; a third, to be saved from 
-arrest after running away, drives a sword into his vitals. Do you not suppose that virtue will be as efficacious as 
-excessive fear? No man can have a peaceful life who thinks too much about lengthening it, or believes that living through 
-many consulships is a great blessing.  Rehearse this thought every day, that you may be able to depart from life 
-contentedly; for man men clutch and cling to life, even as those who are carried down a rushing stream clutch and 
+trifling reasons impel men to scorn life?  One hangs himself before the door of his mistress; another hurls himself 
+from the house-top that he may no longer be compelled to bear the taunts of a bad- tempered master; a third, to be 
+saved from arrest after running away, drives a sword into his vitals. Do you not suppose that virtue will be as 
+efficacious as excessive fear? No man can have a peaceful life who thinks too much about lengthening it, or believes 
+that living through many consulships is a great blessing.  Rehearse this thought every day, that you may be able to 
+depart from life contentedly; for man men clutch and cling to life, even as those who are carried down a rushing stream clutch and 
 cling to briars and sharp rocks.  Most men ebb and flow in wretchedness between the fear of death and the hardships of 
 life; they are unwilling to live, and yet they do not know how to die.  For this reason, make life as a whole agreeable
 to yourself by banishing all worry about it.  No good thing renders its possessor happy, unless his mind is reconciled 
